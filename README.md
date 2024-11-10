@@ -1,9 +1,9 @@
 # ZongziTEK
-🟦Hello.
+🟦 Hello.
 
-🟩My music has been released all over the world. You can search "Zongzi Science" to find me.
+🟩 My music has been faxing all over the world. You can search "Zongzi Science" to zhao wodeyinyue.
 
-🟥My website is https://zztek.top
+🟥 My wangzhan is https://zztek.top
 
 
 <!---
